@@ -1,1 +1,1 @@
-# RAAK-PRO Boeren, Burgers en Buitenbeesten
+# Boeren, Burgers en Buitenbeesten
